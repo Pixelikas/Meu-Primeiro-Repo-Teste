@@ -6,6 +6,6 @@ Bora lá fazer commits /o/
 
 https://gprm.itsvg.in/
 
-https://media1.tenor.com/m/6UoBj3vMZkQAAAAd/monday-weekday.gif
+![giphy](https://github.com/user-attachments/assets/4395e30b-716b-488d-bd1c-4778eb6d72f7)
 
 <img width="1431" height="694" alt="image" src="https://github.com/user-attachments/assets/d4ca9bef-a587-495a-af5f-b30c0195f1c7" />
